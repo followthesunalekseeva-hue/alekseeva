@@ -14,3 +14,5 @@ I love watching them — the swans so elegant and peaceful, the ducks so cheerfu
 Walking along the shore in winter, wrapped in my warm coat, watching these beautiful birds — it feels like my own little fairytale.
 
 This is my home. This is my happy place. Just me, the sea, and my feathered friends.
+
+![](/Users/acintyaleela/Desktop/alekseeva/photo_2026-02-20_16-10-10.jpg)
