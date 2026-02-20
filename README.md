@@ -15,4 +15,4 @@ Walking along the shore in winter, wrapped in my warm coat, watching these beaut
 
 This is my home. This is my happy place. Just me, the sea, and my feathered friends.
 
-![](/Users/acintyaleela/Desktop/alekseeva/photo_2026-02-20_16-10-10.jpg)
+![](photo_2026-02-20_16-10-10.jpg)
